@@ -1,10 +1,8 @@
 <img width="1362" height="308" alt="image" src="https://github.com/user-attachments/assets/94a74b0a-b533-4f73-b9ba-f0399ca79a0a" />
 
+# Welcome to my digital world 🚀👋
 
-#### Hi there 👋
-
-
-
+<img align="right" width="600px" height="600px" alt="ChatGPT Image 17 de mar  de 2026, 17_54_14" src="https://github.com/user-attachments/assets/9c6b9b56-2ee9-4769-891a-cbe4f0647753" />
 
 
 <!--
