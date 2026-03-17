@@ -1,6 +1,9 @@
-<img width="100%" height="100%" alt="Captura de ecrã 2026-03-17 153134" src="https://github.com/user-attachments/assets/50cc2ce0-f7e6-469f-85b5-89751c0f9289" />
+<img width="1362" height="308" alt="image" src="https://github.com/user-attachments/assets/94a74b0a-b533-4f73-b9ba-f0399ca79a0a" />
+
 
 #### Hi there 👋
+
+
 
 
 
